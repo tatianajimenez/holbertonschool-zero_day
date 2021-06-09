@@ -1,2 +1,2 @@
-# Hi my name is Tatina
-## I am from Colombia
+# Hi my name is Tatina J
+## I am from Colombia - Antioquia
